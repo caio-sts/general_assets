@@ -1,1 +1,1 @@
-General assets for me
+General assets for instant need.
