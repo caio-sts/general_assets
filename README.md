@@ -1,0 +1,1 @@
+General assets for me
